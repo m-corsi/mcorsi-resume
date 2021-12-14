@@ -1,2 +1,2 @@
 # mcorsi-resume
- My resume
+Welcome to my English resume! (:*
